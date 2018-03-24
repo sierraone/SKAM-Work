@@ -23,6 +23,7 @@ Vårt overforbrukssamfunn står på skuldrene til kaffebønder fra Peru.
 Vi fråtser i billig mat produsert av underbetalte barnehender i India.
 
 -Var det bra?
+
 -Kjempebra!
 
 Burde jeg bytta tittelen til: Arbeidsforholdene er umenneskelige?
@@ -34,16 +35,19 @@ Er det andre ting du har tenkt på?
 Der du skriver "fråtser i billigmat" to ganger på rad ...
 
 -Du kunne kanskje endret det.
+
 -Nei, det er meningen.
 
 Jeg bruker gjentakelse som litterært virkemiddel for å understreke ...
 
 -... var det bra?
+
 -Ja, det var bra. Smart skrevet.
 
 Jeg fikk en femmer! 5+? Stjerna! Jævlig bra.
 
 -Eva, hva fikk du?
+
 -Jeg vil ikke snakke om det.
 
 Greia er at Jonas er kjæresten din, så du må si alt til ham.
@@ -51,9 +55,11 @@ Greia er at Jonas er kjæresten din, så du må si alt til ham.
 Jonas sier alt til meg. Jeg får vite det uansett.
 
 -Det er sant.
+
 -Jeg fikk 4-.
 
 -Fikk du 4-?
+
 -Dårlig.
 
 Ja ja, du er god i mye annet.
@@ -63,6 +69,7 @@ Du klarer å kle på deg selv, du pusser tennene selv.
 Tenk på det!
 
 -Jonas, vi stikker.
+
 -Hvor skal dere?
 
 Til Elias.
@@ -72,12 +79,15 @@ Jeg ringer deg senere.
 "Telefonen er slått av ..."
 
 -Halla! Hva skjer?
+
 -Ingenting spesielt, egentlig.
 
 -Er du med Jonas?
+
 -Ikke nå.
 
 -Skulle ikke dere til Elias?
+
 -Jo, men det er noen timer siden.
 
 Har du sett det bildet til Sara? Jeg tror hun har fått løsvipper.
@@ -89,22 +99,27 @@ Har du hørt at jeg har starta buss allerede?
 Én måned uti videregående starter de buss.
 
 -Med hvem da?
+
 -Med Rodrigues, kanskje ...
 
 Du vet du bare kan snakke med henne? Hun biter ikke.
 
 -Jonas er her, jeg må gå.
+
 -Hva skal dere?
 
 Jeg prøvde å ringe deg, men du tar aldri telefonen.
 
 -Jeg har ikke mer batteri.
+
 -Kan du ikke bare lade hjemme?
 
 -Jeg har ikke vært hjemme.
+
 -Hvor har du vært?
 
 -Jeg har vært hos Elias.
+
 -Til nå?
 
 Jeg snakket med Isak. Han sa dere dro fra Elias for mange timer siden.
@@ -120,6 +135,7 @@ Stoler du ikke på meg?
 Du er gal!
 
 -3+? Du sa du fikk 4, jo!
+
 -Det er nesten det samme.
 
 "Den som har utvist ..."
@@ -129,14 +145,17 @@ Du er gal!
 "I psykologi er skyld en tilstand man opplever."
 
 "En tilstand man opplever."
+
 Det var jævlig søtt.
 
 -Hva tror du du gjør?
+
 -Et kyss ...
 
 "En tilstand man opplever."
 
 -Hva heter du?
+
 -Ingrid.
 
 Går dere i samme klasse?
@@ -144,6 +163,7 @@ Går dere i samme klasse?
 Det koster 150 kr per billett.
 
 -Det blir bra. Gleder dere dere?
+
 -Ja.
 
 Hei! Skal du være med på revyen?
@@ -165,6 +185,7 @@ Nei da! Men hvis du vil være med på vors, add meg på Face. Argentina!
 Jeg tror ikke noen liker ham. Når læreren har åpenbare spørsmål ...
 
 -Du, kan ikke vi gå på den festen?
+
 -Hvorfor det?
 
 Hele skolen skal dit. Vi går i første klasse.
@@ -176,6 +197,7 @@ Det er nå vi legger grunnlaget for vårt sosiale liv.
 Kom igjen, da! Det er revyfest! Det blir dritgøy!
 
 -Jeg lover.
+
 -Ja, ok. Jeg kan bli med.
 
 Hvis Isak kan bli med på hytta neste uke.
@@ -189,17 +211,21 @@ Du kan jo ta med en venninne, du også.
 Hva sier du?
 
 -Ok, Isak skal få lov til å være med.
+
 -Være med på hva da?
 
 -Hytta, mann!
+
 -Hytta? Jeg skal på hytta?
 
 På én betingelse! At dere blir med på revyfesten i morgen.
 
 -Vi kan ikke.
+
 -Hvorfor ikke?
 
 -Kindred Fever-billettene.
+
 -Å!
 
 Jeg hadde helt glemt det! Sorry, altså! Jeg huska det ikke.
@@ -217,6 +243,7 @@ Mike fikk meg til å si opp min egen jobb, som jeg hadde hatt i 18 år.
 I etterpåklokskapens navn var det nok noen faresignaler.
 
 -Hva hører du at jeg sier til deg?
+
 -Det er tungt. Jeg føler meg dum.
 
 Jeg vil ikke at noen skal synes jeg er en idiot.
@@ -224,6 +251,7 @@ Jeg vil ikke at noen skal synes jeg er en idiot.
 Du må bestemme deg for om du skal være et nedbrutt, sviktet offer uten selvtillit, siden du ikke skjønte hva som skjedde.
 
 Eller så må du si at dette har du lært av, og at du nå er blitt en sterkere kvinne.
+
 "Jeg skal finne min egen vei."
 
 "Jeg lar meg ikke knekke av dette."
@@ -245,6 +273,7 @@ Jeg ville droppet den eyelineren! Du ser ut som en slut!
 Hun har klikka.
 
 -Vi har spansk sammen. Noora.
+
 -Eva.
 
 Jenter som kaller andre "slut", har 90 % større sjanse for å få klamydia.
@@ -252,6 +281,7 @@ Jenter som kaller andre "slut", har 90 % større sjanse for å få klamydia.
 Nei da. Men det hadde vært kult hvis det var sånn.
 
 -Går det bra, eller?
+
 -Ja da ... Det går bra.
 
 Er du sikker?
@@ -259,6 +289,7 @@ Er du sikker?
 Kanskje ... Kanskje jeg skulle hente en venn?
 
 -Kanskje Chris?
+
 -Chris?
 
 Det var 40 000 kr! Jeg har ikke de pengene!
@@ -272,9 +303,11 @@ Jeg mener ikke å avbryte, men jeg har hentet Chris til deg.
 Her er jeg!
 
 -Det er Chris.
+
 -Jeg er Chris.
 
 -Heter du også Chris?
+
 -Herregud!
 
 Tvillingnavn!
@@ -284,6 +317,7 @@ Vi var egentlig midt oppi noe, vi.
 Ja ... Så klart ...
 
 -Kom, vi går.
+
 -Hva skjer'a? Skulle ikke vi snakke?
 
 Hvor skal du? Ikke vær sånn luremus, da!
